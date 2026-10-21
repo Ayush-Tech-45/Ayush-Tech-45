@@ -74,8 +74,8 @@ I’m continuing to build practical experience with these tools; the list repres
 ## 🤝 Connect With Me
 
 - **GitHub:** [@Ayush-Tech-45](https://github.com/Ayush-Tech-45)
-- **LinkedIn:** Add your verified LinkedIn profile URL in your GitHub profile's Social accounts.
-- **Instagram:** Add your main account through GitHub's Social accounts settings if you want it displayed publicly.
+- **LinkedIn:** [Connect with me on LinkedIn](https://www.linkedin.com/in/ayush-r-7a351832a/)
+- **Instagram:** [Follow my main Instagram account](https://www.instagram.com/a.yush_18/)
 
 ---
 
