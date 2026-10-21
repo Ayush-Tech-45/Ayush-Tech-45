@@ -75,7 +75,7 @@ I’m continuing to build practical experience with these tools; the list repres
 
 - **GitHub:** [@Ayush-Tech-45](https://github.com/Ayush-Tech-45)
 - **LinkedIn:** [Connect with me on LinkedIn](https://www.linkedin.com/in/ayush-r-7a351832a/)
-- **Instagram:** [Follow my main Instagram account](https://www.instagram.com/a.yush_18/)
+- **Instagram:** [Follow my Instagram account](https://www.instagram.com/a.yush_18/)
 
 ---
 
